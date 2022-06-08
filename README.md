@@ -1,2 +1,19 @@
-# turkish-toga-oarty
+# turkish-toga-party
+
+https://nl.wikipedia.org/wiki/Mishandeling
+
+https://nl.wikipedia.org/wiki/Injectiespuit
+
+https://en.wikipedia.org/wiki/Haloperidol
+
+https://en.wikipedia.org/wiki/Depot_injection
+
+https://en.wikipedia.org/wiki/Buttocks
+
+https://nl.wikipedia.org/wiki/Isoleercel
+
+https://en.wikipedia.org/wiki/Catatonia
+
+
+
 doktor mary janssen van raay
